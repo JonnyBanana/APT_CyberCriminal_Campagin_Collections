@@ -636,3 +636,13 @@ Please fire issue to me if any lost APT/Malware events/campaigns.
 
 ## 2006
 * ["Wicked Rose" and the NCPH Hacking Group](http://krebsonsecurity.com/wp-content/uploads/2012/11/WickedRose_andNCPH.pdf)
+
+
+
+</BR>
+
+<a href="https://golden-farm.biz/?r=1673249" target="_blank">
+<img src="https://golden-farm.biz/images/promo/en/728x90.gif"
+alt="Profit every 10 minutes!"></a>
+
+
